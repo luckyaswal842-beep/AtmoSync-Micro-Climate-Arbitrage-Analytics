@@ -1,1 +1,0 @@
-# Infotact-solutions---data-analysts-
